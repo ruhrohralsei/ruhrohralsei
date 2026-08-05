@@ -12,7 +12,7 @@
 <div align="center"> dnc or take inspo on any of my skins please!! if you really want to you can whisper me and i can help if you'd like but other then that its a no thank you
   
 <br><div align="center">╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚
-<div align="center">ok byebye and ignore how pixilated these gifs are
+<div align="center">ok byebye and ignore how pixilated these gifs are. also ignore the no color my things bugged heh..
 <div align="center"><img width="750" height="290" alt="susie-deltarune" src="https://github.com/user-attachments/assets/419cd6b5-9ed4-4614-a984-ac6e45999786" />
 ⊹⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⊹
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
