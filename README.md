@@ -8,16 +8,16 @@
   </a>
 </p>
   
-<div align="center">i'm almost always afk and not looking to rp whatsoever but if i get dragged into one i probably won't speak up abt it
+<div align="center">⊹_ i'm almost always afk and not looking to rp whatsoever but if i get dragged into one i probably won't speak up abt it _⊹
 <br><div align="center">... ⊹ ...
 
-<div align="center">i suggest reading straw for dni, warnings, and if u want to bmf it should explain everything
-<br><div align="center">... ⊹ ...
+<div align="center">⊹_ i suggest reading straw for dni, warnings, and if u want to bmf it should explain everything! _⊹
+  <br><div align="center">... ⊹ ...
   
-<div align="center"> dnc or take inspo on any of my skins please!! if you really want to you can whisper me and i can help if you'd like but other then that its a no thank you
+<div align="center"> dnc or take inspo on any of my skins please!! if you really want to you can whisper me and i can help if you'd like but other then that its a no thank you. _⊹
   
 <br><div align="center">╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚
-<br><div align="center">ok byebye and ignore how pixilated these gifs are. also ignore the no color my things bugged heh..
+<br><div align="center">⊹_ok byebye and ignore how pixilated these gifs are. also ignore the no color my things bugged heh.. _⊹
 <div align="center"><img width="750" height="290" alt="susie-deltarune" src="https://github.com/user-attachments/assets/419cd6b5-9ed4-4614-a984-ac6e45999786" />
 ⊹⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⊹
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
