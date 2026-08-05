@@ -11,7 +11,7 @@
   </a>
 </p>
   
-<div align="center">⊹_ i'm almost always afk and not looking to rp whatsoever but if i get dragged into one i probably won't speak up abt it _⊹
+<br><div align="center">⊹_ i'm almost always afk and not looking to rp whatsoever but if i get dragged into one i probably won't speak up abt it _⊹
 <br><div align="center">... ⊹ ...
 
 <div align="center">⊹_ i suggest reading straw for dni, warnings, and if u want to bmf it should explain everything! _⊹
