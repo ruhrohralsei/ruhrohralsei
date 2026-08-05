@@ -19,7 +19,7 @@
   
 <div align="center"> dnc or take inspo on any of my skins please!! if you really want to you can whisper me and i can help if you'd like but other then that its a no thank you. _⊹
 
-<br><div align="center">... ⊹ ...
+<div align="center">... ⊹ ...
 
 <div align="center">╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚
 
