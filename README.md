@@ -27,7 +27,7 @@
 
 <div align="center">╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚
   
-<br><div align="center">⊹_ "why doesn't your github have any color..and why does it have so many gaps?" Shh shh i spent two hours trying to make the color tags work (they didn't) and to fix the gap between my spotify and text SO SHH shh i'll tackle it another time but if you have tips ha..please do share I BEG. _⊹
+<br><div align="center">⊹_ "why doesn't your github have any color..and why does it have so many gaps?" Shh shh i spent two hours trying to make the color tags work (they didn't) and to fix the gap between my spotify and text SO SHH shh i'll tackle it another time but if you have tips ha..please do share I BEG OR SUGGESTIONS _⊹
 
 <div align="center"><img width="188" height="120" alt="ralsei-splat" src="https://github.com/user-attachments/assets/34d2e4bb-f442-425b-9363-da145b43604f" />
 
