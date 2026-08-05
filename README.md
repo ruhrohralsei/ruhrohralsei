@@ -4,7 +4,7 @@ $\color{#96afc2}{\text{⊹⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄
 <div align="center">$\color{#96afc2}{\text{╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚}}&
   
 <div align="center">i'm almost always afk and not looking to rp whatsoever but if i get dragged into one i probably won't speak up abt it
-<br><div align="center">$\color{#96afc2}{\text{... ⊹ ...}}&
+$\color{#96afc2}{\text{<div align="center">... ⊹ ...}}&
   
 <div align="center">i suggest reading straw for dni, warnings, and if u want to bmf it should explain everything
 <br><div align="center">$\color{#96afc2}{\text{... ⊹ ...}}&
