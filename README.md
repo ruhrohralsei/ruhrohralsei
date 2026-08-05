@@ -1,13 +1,13 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 ⊹⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠂⠄⠄⠂⠂⠄⠄⠂⠁⠁⊹
 <div align="center"><img width="750" height="290" alt="kris-ralsei" src="https://github.com/user-attachments/assets/a3aa567b-1b7e-4065-94b4-2028617cc09d" />
-<div align="center">$\color{#96afc2}{\text{╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚}}&
+<div align="center">╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚
   
 <div align="center">i'm almost always afk and not looking to rp whatsoever but if i get dragged into one i probably won't speak up abt it
-$\color{#93693e}{\text{... ⊹ ...}}&
+... ⊹ ...
   
 <div align="center">i suggest reading straw for dni, warnings, and if u want to bmf it should explain everything
-<br><div align="center">$\color{#96afc2}{\text{... ⊹ ...}}&
+<br><div align="center">... ⊹ ...
   
 <div align="center"> dnc or take inspo on any of my skins please!! if you really want to you can whisper me and i can help if you'd like but other then that its a no thank you
   
